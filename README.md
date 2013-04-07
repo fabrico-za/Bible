@@ -1,11 +1,11 @@
 Bible
 =====
-Open-source Bible project
+**Open Source Bible project**
 
 License
 -------
 
-MIT License
+[MIT License](http://opensource.org/licenses/MIT)
 
     // TODO: Create a Bible Specific Free Source License
 
@@ -15,3 +15,8 @@ Contents
 --------
 
 * Windows Phone 7 Application
+
+Contributors
+------------
+
+* [GJM Wolmarans](https://github.com/gabriel-wolmarans)
