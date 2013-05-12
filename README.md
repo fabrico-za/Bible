@@ -16,7 +16,7 @@ We would greatly appreciate fellow Kingdom citizens to assist regarding any and 
 We, as God fearing Christians, thank God, for the privilege and ability to read His Word.
 Knowing that we will not find everlasting life in the scriptures, but only through the Messiah, Jesus Christ, the Way, the Truth and the Life –John 5: 39; John 14: 6.
 
-We thank the community of translators, publishing companies, and Johannes Guttenberg for starting of the printing of the Bible. We greatly admire the work that they have done. We thank the inventors of the technologies, that we are using and that we are about to use to expand God's Kingdom. We will do our best to continue your good work for the Glory of God.
+We thank the community of translators, publishing companies, and Johannes Guttenberg for starting the process of spreading God's Word through printed material. We greatly admire the work that you have done. We thank the inventors of the technologies, that we are using and that we are about to use to expand God's Kingdom. We will do our best by the Grace of God to continue your good work for the Glory of God.
 
 This project's purpose is not to financially profit the contributors, but to give freely as we receive God's love underserved. We aim to give free access to the best software that the Christian Community can provide, to all that are willing to participate.
 
