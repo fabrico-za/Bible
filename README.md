@@ -28,7 +28,7 @@ We are confident in stating that no company or individual person can claim autho
 
 As God is not a respector of persons (Acts 10: 34), we will abide in doing the work that He has set before us.
 
-(We don't expect you to give away the printed copies of the Bible's published by your company for free. We are aware of the costs of printing. Find comfort in the fact that [batteries](en.wikipedia.org/wiki/Battery_(electricity)) do not last forever. )
+(We don't expect you to give away the printed copies of the Bible's published by your company for free. We are aware of the costs of printing. Find comfort in the fact that [batteries](http://en.wikipedia.org/wiki/List_of_battery_types) do not last forever. )
 
 All Bibles and books given out as "Bibles", will be scrutinized with the aid of computers during the course of this project to statistically, linguistically prove that God's Word is consistent in all languages and versions to a society that is dependent on scientific proof. Therefore if any version is found inconsistent with the Word of God, we as the Christians Community will not regard the writing as the Word of God.
 
