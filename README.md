@@ -20,7 +20,7 @@ We thank the community of translators, publishing companies, and Johannes Gutten
 
 This project's purpose is not to financially profit the contributors, but to give freely as we receive God's love underserved. We aim to give free access to the best software that the Christian Community can provide, to all that are willing to participate.
 
-"He that hath ears to hear, let him hear" - Jesus - Matthew 11: 15 KJV | John 5: 24 {Add additional references}
+"He that hath ears to hear, let him hear" - Jesus - Matthew 11: 15 KJV | Matthew 13: 9 | John 5: 24 {Add additional references}
 
 ### A note to translators and publishers:
 
